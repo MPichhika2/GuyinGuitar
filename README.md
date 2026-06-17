@@ -1,0 +1,2 @@
+I used severa brushes to create this soft style of a guy playing a guitar. I traced an image an layered the colors using a soft brush. <img width="1481" height="1392" alt="IMG_4537" src="https://github.com/user-attachments/assets/ec9f4925-3874-44c9-9c60-20322540a9b0" />
+<img width="1481" height="1392" alt="IMG_4537" src="https://github.com/user-attachments/assets/ca17ec5c-d3f5-4ec9-bb59-442a00802907" />
